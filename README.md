@@ -107,4 +107,4 @@ The Smart Waste Management System has potential for further enhancements and imp
 
 ## Contact
 
-If you have any questions or suggestions, feel free to contact us at [amitanand.asqre@gmail.com]
+If you have any questions or suggestions, feel free to contact us at [Shantanusisodia777@gmail.com]
